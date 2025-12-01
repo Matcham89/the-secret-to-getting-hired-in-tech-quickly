@@ -1,5 +1,5 @@
 ---
-title: The Secret To Getting Hired In Tech Quickly
+title: The Secret to Getting Hired in Tech Quickly
 ---
 
 # The Secret to Getting Hired in Tech Quickly
